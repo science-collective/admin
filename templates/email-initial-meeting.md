@@ -23,31 +23,3 @@ If you are interested in attending or are interested in being involved in this i
 If you can't join the meeting on the 25th but are still interested in participating or hearing more please let us know and we will add your name to our mailing list for the next event.
 
 Looking forward to hearing from you!
-
-
-
-Invitation to Zoom meeting.
-
-Topic: A Science Collective Brainstorming meeting
-Time: Nov 25, 2021 16:00 Copenhagen
-
-Join Zoom Meeting
-https://aarhusuniversity.zoom.us/j/67543951282?pwd=bWxiYkhYRGdPeGNkQ1B6dHVwRzhBdz09
-
-Meeting ID: 675 4395 1282
-Passcode: 769238
-
-Join by SIP
-67543951282@109.105.112.236
-67543951282@109.105.112.235
-
-Join by H.323
-109.105.112.236
-109.105.112.235
-Meeting ID: 675 4395 1282
-Passcode: 769238
-
-
-
-
-
